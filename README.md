@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **hrishikeshmalave@gmail.com**
 
-- 📄 Know about my experiences <a href="https://www.linkedin.com/in/hrishikesh-malave-890948169" target="blank"> Siddharth Resume <a>
+- 📄 Know about my experiences <a href="https://www.linkedin.com/in/hrishikesh-malave-890948169" target="blank"> Linkedin <a>
 
 - ⚡ Fun fact **i love cricket 🏏**
 
